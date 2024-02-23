@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anon1Red7
-- 👀 I’m interested in ... making a difference
+- 👀 I’m interested in ... everything
 - 🌱 I’m currently learning ... java
 - 💞️ I’m looking to collaborate on ... changing the world
 - 📫 How to reach me ... interdimensional travel
